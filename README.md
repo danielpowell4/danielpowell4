@@ -1,4 +1,4 @@
-### Hey cool kids 🔭
+### Hey cool kids [🔭](https://gobloom.io)
 
 Building stuff is fun. Going fast and steady is great. 
 
